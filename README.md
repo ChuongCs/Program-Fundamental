@@ -1,7 +1,1 @@
 # Program-Fundamental
-asdadsadadadadssdadadadsaddad
-fdfdgnmfgffgdgffdgfgd
-dassssssssssssssssssssssssssssssssssssd
-
-
-sdasdf,fd,,fldh,lfdglgdsasdasd
